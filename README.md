@@ -1,2 +1,3 @@
-<img width="1070" height="459" alt="image" src="https://github.com/user-attachments/assets/7a557161-6120-43b3-9938-e2522dae4b84" />
-(no this is just my excuse to put my own discord message)
+<div align=center>
+  <img src="https://github.com/user-attachments/assets/734e16a9-d52b-4264-9389-4d7e5860bbd8"/>
+</div>
