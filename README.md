@@ -10,3 +10,5 @@
 </div>
 
 <!-- hi guys -->
+
+[click me rentry](https://rentry.co/goodnightLMAO)
