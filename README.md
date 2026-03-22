@@ -1,4 +1,4 @@
-<video src="https://github.com/user-attachments/assets/4815aeb3-0fb1-4ab1-83c0-7ccbe1a2c2c2" autoplay loop muted playsinline width="400">
+<video src="https://github.com/user-attachments/assets/4815aeb3-0fb1-4ab1-83c0-7ccbe1a2c2c2" autoplay loop playsinline width="400">
 </video>
 
 <!--
