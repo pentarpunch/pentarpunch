@@ -1,3 +1,12 @@
+<div align="center"> 
+  <a href="https://rentry.co/5or3">read byi</a>ㅤ
+  <a href="https://spork.atabook.org">atabook</a>ㅤ
+  <a href="https://lcb53.straw.page">strawpage</a>ㅤ
+  <a href="https://guns.lol/entropyduo">guns.lol</a>
+</div>
+
+ㅤ
+
 <video src="https://github.com/user-attachments/assets/4815aeb3-0fb1-4ab1-83c0-7ccbe1a2c2c2" autoplay loop playsinline width="400">
 </video>
 
