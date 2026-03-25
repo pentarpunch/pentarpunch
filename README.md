@@ -10,7 +10,7 @@
 <img width="959" height="599" alt="Untitled57_20260325175619" src="https://github.com/user-attachments/assets/c86833a3-cd54-4061-b905-91097d03e2e4" />
 good morning projectmoon
 
-(liking ryoshu when rien is your favorite character feels like a crime)
+(i dont share my manager id, i prefer keeping the manager profile anonymous + i dont need that much connections)
 <!--
 
 <div align="center">
