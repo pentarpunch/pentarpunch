@@ -7,8 +7,10 @@
 
 ㅤ
 
-<img width="1919" height="1199" alt="image-33" src="https://github.com/user-attachments/assets/2f785a13-2eb9-41e8-a899-f6f1bdc97aea" />
-my excuse to put this image cause i cant stop laughing at it. i genuinely dont know what is wrong with myself
+<div align="center">
+  <img width="1378" height="975" alt="image" src="https://github.com/user-attachments/assets/7aab94d3-ed9b-4f3d-bdb4-91d4708f5b80" />
+</div>
+
 <!--
 
 <div align="center">
