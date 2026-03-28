@@ -8,8 +8,9 @@
 ㅤ
 
 <div align="center">
-  <img width="1378" height="975" alt="image" src="https://github.com/user-attachments/assets/7aab94d3-ed9b-4f3d-bdb4-91d4708f5b80" />
+  <img width="1837" height="355" alt="image-32" src="https://github.com/user-attachments/assets/6873555b-c45d-46b7-b2de-29be8465d731" />
 </div>
+zoom for better view
 
 <!--
 
