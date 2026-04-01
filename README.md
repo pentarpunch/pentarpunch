@@ -1,21 +1,14 @@
-<table>
-  <p align="center">
-    <td>
-      <p align="center">
 <div align="center"> 
-  <a href="https://rentry.co/5or3">read byi</a>ㅤㅤ
+  <a href="https://rentry.co/5or3">ㅤㅤㅤㅤread byi</a>ㅤㅤ
   <a href="https://spork.atabook.org">atabook</a>ㅤㅤ
   <a href="https://lcb53.straw.page">strawpage</a>ㅤㅤ
-  <a href="https://guns.lol/entropyduo">guns.lol</a>
+  <a href="https://guns.lol/entropyduo">guns.lolㅤㅤㅤㅤ</a>
 
 ㅤ
 
 <img width="98" height="56" alt="Tumblr_l_559147453635326" src="https://github.com/user-attachments/assets/098bbf34-e61d-4aab-a7ec-92c1fe9b1a42" />
 </div>
 </p>
-    </td>
-  </p>
-</table>
 
 <sup> <sub> BlnD=@3B*!@s)X"DKI";Bl7^-/g+\=A0?/9FWb=8F<G:>+ED1/BQQH]BQS?8F#ks-A8bt!/n]*@B5D-3@rH3;A8bt#D.RU,04Z^j;JJsDC2QFBDGE#U7Pm,<7m^ubAoMK[@8K:#9P\?\@nop282P-UA2/9]ARoLs5BV$d4`b:FEbTE( </sub ></sup>
 
