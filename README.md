@@ -1,6 +1,4 @@
 <div align="center"> 
-  <img src="https://github.com/user-attachments/assets/4262ec5d-a411-41ed-ad40-6a826fe64a2a"/>
-  
   <a href="https://rentry.co/5or3">read byi</a>ㅤㅤ
   <a href="https://spork.atabook.org">atabook</a>ㅤㅤ
   <a href="https://lcb53.straw.page">strawpage</a>ㅤㅤ
