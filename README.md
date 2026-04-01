@@ -4,9 +4,10 @@
   <a href="https://lcb53.straw.page">strawpage</a>ㅤㅤ
   <a href="https://guns.lol/entropyduo">guns.lol</a>
 
-ㅤ
 
-<img width="98" height="56" alt="Tumblr_l_559147453635326" src="https://github.com/user-attachments/assets/098bbf34-e61d-4aab-a7ec-92c1fe9b1a42" />
+son wtf
+ㅤ<img width="516" height="357" alt="Screenshot 2026-04-01 101517" src="https://github.com/user-attachments/assets/96ae2d53-6430-4eda-a6c2-7f033c3ac748" />
+
 </div>
 </p>
 
