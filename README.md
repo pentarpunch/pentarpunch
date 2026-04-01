@@ -3,13 +3,11 @@
   <a href="https://spork.atabook.org">atabook</a>ㅤㅤ
   <a href="https://lcb53.straw.page">strawpage</a>ㅤㅤ
   <a href="https://guns.lol/entropyduo">guns.lol</a>
-
-
-son wtf
-ㅤ<img width="516" height="357" alt="Screenshot 2026-04-01 101517" src="https://github.com/user-attachments/assets/96ae2d53-6430-4eda-a6c2-7f033c3ac748" />
-
 </div>
-</p>
+
+<div align="center">
+  <img width="549" height="219" alt="Screenshot 2026-04-01 102807" src="https://github.com/user-attachments/assets/d99bacf3-89bf-4c01-a904-ebaccafbeed2" />
+</div>
 
 <sup> <sub> BlnD=@3B*!@s)X"DKI";Bl7^-/g+\=A0?/9FWb=8F<G:>+ED1/BQQH]BQS?8F#ks-A8bt!/n]*@B5D-3@rH3;A8bt#D.RU,04Z^j;JJsDC2QFBDGE#U7Pm,<7m^ubAoMK[@8K:#9P\?\@nop282P-UA2/9]ARoLs5BV$d4`b:FEbTE( </sub ></sup>
 
