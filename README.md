@@ -19,6 +19,8 @@
   im keeping my profile plain anyways im glitch duo glazer
   
   also i didnt write the commit message changes
+
+  (if you considerably readed that)
 </div>
 
 <!--
