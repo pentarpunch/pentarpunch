@@ -14,6 +14,7 @@
 <div align="center">
   sancho: "dotonaro: hi my name is fat and chud dotonaro"
   <img src="https://github.com/user-attachments/assets/ea800ccb-7c0c-465e-9f02-1a25db5a4666"/>
+  
   hey
   <a href="https://github.com/meidemumsancho">ajax</a>
     if youre reading this im letting you know that there is only woke dotonaro and me (dotonaro) ok
