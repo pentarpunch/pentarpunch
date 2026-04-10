@@ -17,7 +17,7 @@
   
   hey
   <a href="https://github.com/meidemumsancho">ajax</a>
-    if youre reading this im letting you know that there is only woke dotonaro and me (dotonaro) ok
+    if youre reading this im letting you know that there is only woke dotonaro and me (dotonaro) ok and im saying this in public cause u crazy in discord
 </div>
 
 <!--
