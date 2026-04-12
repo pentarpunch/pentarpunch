@@ -11,6 +11,11 @@
 
 ⠀
 
+GUESS WHAT DAY IS IT TODAY. 413!
+<img width="1919" height="1199" alt="image" src="https://github.com/user-attachments/assets/2dbea874-c1fa-4273-b926-cb36be38f556" />
+
+<!--
+
 <div align="center">
   my g.o.a.t pentar by the way
 </div>
