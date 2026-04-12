@@ -1,3 +1,6 @@
+___
+___
+
 <div align="center">    
   <img src="https://komarev.com/ghpvc/?username=Iimbus&label=lunacy&color=FF0000&style=square" alt="Profile views"/>
 </div>
@@ -12,13 +15,16 @@
 ⠀
 
 <div align="center">
-  sancho: "dotonaro: hi my name is fat and chud dotonaro"
-  <img src="https://github.com/user-attachments/assets/ea800ccb-7c0c-465e-9f02-1a25db5a4666"/>
-  
-  hey
-  <a href="https://github.com/meidemumsancho">ajax</a>
-    if youre reading this im letting you know that there is only woke dotonaro and me (dotonaro) ok and im saying this in public cause u crazy in discord
+  my g.o.a.t pentar by the way
 </div>
+
+<div align="center">
+  <a href="https://x.com/pentar_/status/2041540736957739418">
+  <img width="500" height="990" alt="image" src="https://github.com/user-attachments/assets/e63dbfc0-465d-4c51-9058-f3d4be8a9b2e" />
+</div>
+
+___
+___
 
 <!--
 
