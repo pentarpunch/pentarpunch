@@ -11,8 +11,9 @@
 
 ⠀
 
-GUESS WHAT DAY IS IT TODAY. 413! IM LITERALLY TAKING THE SCREENSHOT MY ENTIRE SCREEN BRO I DONT CARE IM SO HAPPY
-<img width="1919" height="1199" alt="image" src="https://github.com/user-attachments/assets/2dbea874-c1fa-4273-b926-cb36be38f556" />
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/f513f0bc-e020-4b7d-987f-ced657ec9842"/>
+</div>
 
 <!--
 
