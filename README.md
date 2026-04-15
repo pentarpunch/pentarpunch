@@ -17,12 +17,7 @@ ___
   <img src="https://github.com/user-attachments/assets/f513f0bc-e020-4b7d-987f-ced657ec9842"/>
 </div>
 
-<div align="center">
-  <img width="344" height="119" alt="image" src="https://github.com/user-attachments/assets/95552991-d68c-4939-a83b-99bb0bf49764" />
-  
-  im og by the way
-  /<a href="https://en.wikipedia.org/wiki/Joke">joke</a>
-</div>
+___
 
 <!--
 
