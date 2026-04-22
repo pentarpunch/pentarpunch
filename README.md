@@ -13,7 +13,9 @@
      </td>
      <tr>
       <td>
+        <div align="center">
         <img width="300" height="225" alt="Lv_preview_book3" src="https://github.com/user-attachments/assets/9fae6339-bd0d-4d4f-a542-e344c5063a21" />
+        </div>
         <td>
           <div align="center">
             $${\color{#A0A0A0}“And \space you }$$ $${\color{#7F7F7F}don't \space have }$$
