@@ -1,65 +1,14 @@
-<div align="center">
-  links
-  
-  <a href="https://ewron.atabook.org">ata</a>⠀⠀
-  <a href="https://rentry.co/2Z">rentry</a>⠀⠀
-  <a href="https://github.com/d3rLord3">other github</a>
+im kind of lazy to edit my rentry including this repository yeah
 
-<img width="656" height="480" alt="20260519_122049" src="https://github.com/user-attachments/assets/4b09f0f1-5e95-4aa1-8192-ecd15864828d" />
-</div>
+things i like: projectmoon (i like lobcorp more), unstable smp/universe, qsmp (2), mewgenics (please spare me tboi glazers im a newgen), lifesteal, just cause 3, ultrakill, bfdi/bfdia
 
 <div align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f00000&bar_color_cover=false"> </a>
-</div>
-
-<!-- hidden things i will need some time
-
-<div align="center">
-  <table>
-   <tr>
-     <td>
-       <div align="center">
-    <img width="300" height="13" alt="Tumblr_l_13075005346547" src="https://github.com/user-attachments/assets/1817b16f-aefc-4a7f-8fa2-bfd32bbf85b6" />
-</div>
-     </td>
-     <td>
-       <div align="center">
-        <img src="https://komarev.com/ghpvc/?username=Iimbus&label=✿&color=A0A0A0&style=square" alt="Profile views"/>
-      </div>
-     </td>
-     <tr>
-      <td>
-        <div align="center">
-        <img width="300" height="225" alt="Lv_preview_book3" src="https://github.com/user-attachments/assets/9fae6339-bd0d-4d4f-a542-e344c5063a21" />
-        </div>
-        <td>
-          <div align="center">
-            $${\color{#A0A0A0}“And \space you }$$ $${\color{#7F7F7F}don't \space have }$$
-          </div>
-          <div align="center">
-            $${\color{#7F7F7F} to \space 8e \space a }$$ $${\color{#A0A0A0} good \space person \space to }$$ $${\color{#7F7F7F} 8e \space a }$$ $${\color{#7F7F7F} hero.“ }$$ 
-          </div>
-        </td>
-       </tr>
-      <td>
-        <div align="center">
-          <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d6d6d6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&redirect=truet">
+  <a href="https://rentry.co/dotonaro">
+  read more here for dnis
   </a>
-</p>
-          </a>
-        </div>
-      </td>
-    <td>
-      <div align="center">
-  <a href="https://spork.atabook.org">ata</a>⠀⠀
-  <a href="https://guns.lol/qsmp">guns.lol</a>⠀⠀
-  <a href="https://rentry.co/LettyK">rentry</a>
-      </div>
-    </td>
-    </tr>
-  </table>
 </div>
 
-<!-- Hail and well met, good sir or madam! May thy day be filled with valor and virtue! ^o^ -->
+___
+
+ps:
+- i dont play ponytown that much since most of you are weird, criticize me without proper context, or frame me as problematic for clout so people side with you and oppress me, this problem is the only reason why i go under tons of aliases in-order to make my name stay clean. and yes, this does feels like a curse because this happens to me atleast once or twice a year ... most of callouts ive gotten is extremely vague which proves my entire point. i swear to god: if i do something wrong please just tell me, its not that hard to describe on something wrong. and one more time, i sometimes enter flow state where its at the point where i genuinely dont know what the hell am i typing nor if it makes sense 
