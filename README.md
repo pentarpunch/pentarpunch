@@ -14,5 +14,7 @@
   
   psa: i am going to leave 
   <a href="https://docs.google.com/document/d/1l9wqO7RSlZdLtcDmCRFu96PfntmufOgiTJYO4uyzyA0/edit?tab=t.0">
-    this docs for a while in my profile to do something or help my friends situation a bit.</a> also happy mental health awareness month guys!!
+    this docs for a while in my profile to do something or help my friends situation a bit.</a>
+    
+   also happy mental health awareness month guys!!
 </div>
